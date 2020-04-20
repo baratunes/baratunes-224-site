@@ -1,1 +1,1 @@
-![Flyer Latinchip 22/4](/images/latinchip-224.png)
+![Flyer Latinchip 22/4](latinchip-224.png)
