@@ -8,7 +8,7 @@
 
 ### Join the party / Veni a la fiesta
 
-[Habbo - Link available 22/4](http://www.habbo.es)
+[Habbo](https://www.habbo.es/hotel?room=118454199)
 
 [Mozilla Hubs - Link available 22/4](http://hubs.mozilla.com)
 
