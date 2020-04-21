@@ -10,7 +10,7 @@
 
 [Habbo](https://www.habbo.es/hotel?room=118454199)
 
-[Mozilla Hubs - Link available 22/4](http://hubs.mozilla.com)
+[Mozilla Hubs](https://hub.link/JX5fUzJ)
 
 ### Follow us / Seguinos en
 
