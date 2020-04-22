@@ -2,7 +2,9 @@
 
 ### Streaming live on / Segui el stream en vivo en
 
-[Twitch](http://twitch.com/baratunes)
+[Baratunes Twitch](http://twitch.com/baratunes)
+
+[OnceSuperPortable Twitch](https://www.twitch.tv/oncesuperportable)
 
 [PressOver Youtube Channel](http://youtube.com/pressovernews)
 
