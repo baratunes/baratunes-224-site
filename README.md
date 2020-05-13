@@ -1,4 +1,6 @@
-# Windows 95 Theme for Jekyll
+# Blog de Baratunes
+
+## Usamos el Windows 95 Theme for Jekyll:
 
 ![ss](https://github.com/h01000110/windows-95/raw/gh-pages/screenshot_2.png)
 
