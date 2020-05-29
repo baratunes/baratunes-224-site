@@ -14,7 +14,7 @@ La serie está situada en un pueblo finlandés[^2] alejado de la urbe, donde un 
 
 Podés ver la serie [acá](https://youtu.be/hMeO4qAG8WY).
 
-A mediados de los 90s era muy común la escatología lamer/elite en el cyberespacio para referirse a ignotxs e iniciadxs informáticxs. En la serie, este conjunto desagradable y estereotipado de pseudohackers patentiza la ridiculez de este maniqueísmo y otras prácticas sociales vinculadas[^4].
+A mediados de los 90s era muy común la escatología lamer/elite en el cyberespacio para referirse a ignotxs e iniciadxs informáticxs. En la serie, el conjunto desagradable y estereotipado de pseudohackers patentiza la ridiculez de este maniqueísmo y otras prácticas sociales vinculadas[^4].
 
 Para más información podés chequear el ["sitio de la CWU"](http://pelulamu.net/cwu/).
 
